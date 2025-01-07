@@ -1,10 +1,11 @@
-# Sarkarijob
-10th Pass Government Jobs
+
 # 10th Pass Govt Jobs: Your Gateway to a Stable Career
 
 In India, government jobs have always been a preferred choice for many due to their stability, attractive benefits, and job security. For those who have completed their 10th standard, there is a plethora of opportunities to secure a government job. These positions not only offer financial stability but also pave the way for career growth and personal development. Let’s explore the various options available for 10th pass candidates in the government sector.
 
 ---
+## [10th Pass Sarkari Job](https://10thpassjob.org/10th-pass-govt-jobssarkari-job/)
+
 
 ## Why Opt for a Government Job After 10th?
 
